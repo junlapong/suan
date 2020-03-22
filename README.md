@@ -1,4 +1,4 @@
-# Suan-Loong-Juk
+# Suan
 
 ## Inspiration
 

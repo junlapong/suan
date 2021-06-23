@@ -1,5 +1,10 @@
 # Suan
 
+## Coconut Price
+
+- [ราคามะพร้าว](https://offf.to/Sk30)
+- [@ตลาดไท](https://talaadthai.com/profile/favorites/products)
+
 ## Inspiration
 
 - [พิธา ลิ้มเจริญรัตน์ - กระดุม 5 เม็ด ปมปัญหาเกษตรกรไทย](https://youtu.be/UNPHyihvorI)
